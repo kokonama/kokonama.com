@@ -1,1 +1,1 @@
-# kokonama.github.io
+# kokonama.com
